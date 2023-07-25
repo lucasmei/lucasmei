@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lucasmei
+- 👀 I’m interested in Linguistics!
+- 🌱 I’m currently a Level IV Student @ McMaster University
+- 📫 How to reach me:
+  - meil5@mcmaster.ca
